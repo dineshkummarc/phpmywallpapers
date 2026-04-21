@@ -1,1 +1,0 @@
-Panacea-Soft Android Init
